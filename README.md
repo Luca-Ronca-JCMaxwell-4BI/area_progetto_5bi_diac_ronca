@@ -1,1 +1,1 @@
-# area_progetto_5bi_diac_ronca
+# Area progetto (http://www.scuoladigitale.tech/)
