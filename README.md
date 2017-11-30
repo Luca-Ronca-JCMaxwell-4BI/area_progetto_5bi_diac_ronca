@@ -1,1 +1,1 @@
-# Area progetto (http://www.scuoladigitale.tech/)
+# Scuola digitale (cultura tecnologica)
