@@ -1,1 +1,1 @@
-# Scuola digitale (cultura tecnologica)
+# Scuola digitale  (cultura tecnologica)
